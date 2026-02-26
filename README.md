@@ -1,0 +1,2 @@
+# 632fa3c2-3238-46b6-b754-6330b53a662d-hero-2
+Hero section variant 2 for 632fa3c2-3238-46b6-b754-6330b53a662d
